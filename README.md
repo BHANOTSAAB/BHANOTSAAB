@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BHANOTSAAB
+- 👀 I’m interested in tech and trading
+- 🌱 I’m currently learning programing
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me _maybe_bhanot (insta);
